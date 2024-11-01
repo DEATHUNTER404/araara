@@ -1,1 +1,1 @@
-https://deathunter404.github.io/araara/freefore.html
+https://deathunter404.github.io/araara/freefire.html
